@@ -23,7 +23,7 @@ Clash Meta for Android是基于开源代理软件项目Clash开发的安卓适�
 
 打开APP后，点击主页的“配置”
 
-![image](https://github.com/Jump-Internet/ClashSSV2RaySSRTrojan/blob/main/content/content/img/andriod/1.jpg)
+![image](https://github.com/Jump-Internet/ClashSSV2RaySSRTrojan/blob/main/content/img/andriod/1.jpg)
 
 
 点击右上角的“➕”号
