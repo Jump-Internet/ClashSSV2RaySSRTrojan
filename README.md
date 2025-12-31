@@ -41,26 +41,38 @@
 
 👉[E-IX官方网址入口](https://cloud.e-ix.com/#/register?code=pDUYUh3F)
 
+## 三、[FatcatCloud](https://baughlyonzh53.fcvipaff.cc/register?aff=WpbutoWF)
+
+&emsp;&emsp;全中转大带宽， IEPL专线，不限速高端大机场，秒开4K，支持8K！节点地区包括香港，日本，韩国，台湾，新加坡，泰国，马来西亚，菲律宾，越南，印度尼西亚，德国，英国，法国，土耳其，巴西，阿根廷等。，支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯等主流流媒体。全部1倍率。支持ChatGPT、Claude等AI tools。
+
+👉[官方网址入口](https://baughlyonzh53.fcvipaff.cc/register?aff=WpbutoWF)
+
 
 ******************************************************************* 中  级  机  场  区  *******************************************************************
 
-## 一、[灵鹿加速](https://login.linlujs.men/#/register?code=4bf8pZoU)
+## 一、[智连云](https://xinzhilian.xyz/register?code=sWdm0JKC)
 
-&emsp;&emsp;全大陆中转，三网入口，电信不限速，跨省不限速，低延时高速稳定，4K 视频秒载，确保无卡顿、流畅的观影体验。节点包括香港，新加坡，日本，台湾，美国，德国等。解锁 Netflix、Disney+、HBO、YouTube Premium 等视频流媒体。**提供 **不限时纯流量一次性套餐**，用多少扣多少直至用完，如月付低至仅需 3 元。满足各类用户需求。**
+&emsp;&emsp;全大陆中转，深港，京德专线，低延时高速稳定，4K 视频秒载，确保无卡顿、流畅的观影体验，节点包括香港，澳门，韩国，新加坡，日本，台湾，美国，越南，菲律宾，泰国，马来西亚，印度尼西亚，迪拜，印度，澳大利亚，加拿大，英国，墨西哥，法国，以色列，西班牙，德国，土耳其，荷兰，乌克兰，意大利，埃及，哈萨克斯坦等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。**有“纯流量”套餐，注册即享 **免费白嫖体验**，零风险试用高品质服务！**
 
-👉[官方网址入口](https://login.linlujs.men/#/register?code=4bf8pZoU)
+👉[官方网址入口](https://xinzhilian.xyz/register?code=sWdm0JKC)
 
-## 二、[Fancy network](https://dash.justfancy.net/register?code=6kIGih1n)
+## 二、[淘气兔](https://taoqitu.me/index.html?register=OdyZEGNV)
 
-&emsp;&emsp;全千兆高速中转+IPLC专线线路不限速大机场，满足各种需求，特殊时期稳定不怕墙，8K秒开！包括香港，台湾，日本，新加坡，美国，韩国，英国，印度，尼日利亚等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。**新注册用户可享受88折。(优惠码：`Newoff`)**
+&emsp;&emsp;全大陆中转不限速大机场，覆盖等，轻松解锁全球主流影视内容！节点包括包括香港，台湾，日本，新加坡，美国，马来西亚，俄罗斯，英国，西班牙，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。**有不限时“纯流量”套餐，无月付、季付或年付限制，用多少算多少**
 
-👉[官方网址入口](https://dash.justfancy.net/register?code=6kIGih1n)
+👉[官方网址入口](https://taoqitu.me/index.html?register=OdyZEGNV)
 
 ## 三、[StarTrail（星轨）](https://plinkc.sbs/#/register?code=BosKf4eJ)
 
 &emsp;&emsp;全中转大机场，拥有 100+ 节点，4K 视频无卡顿、8K 超清流畅。套餐可联系客服定制。节点包括包括香港，台湾，美国，日本，新加坡，韩国，越南，马来西亚，印度，德国，俄罗斯，英国，加拿大，乌克兰等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime等主流流媒体。**提供不限时流量，用完即止。月付低至13.88，拥有198G大流量，独家提供海外用户回流套餐**
 
 👉[StarTrail官方网址入口](https://plinkc.sbs/#/register?code=BosKf4eJ)  
+
+## 四、[魔戒](https://mojie.xn--yrs494l.com/register?aff=rJp1uYUW)
+
+&emsp;&emsp;不限速、**纯流量**计费，无到期限制，多人共享无压力，真正做到无限制上网。节点包括香港，日本，台湾，美国，新加坡，加拿大，德国，英国，土耳其，澳大利亚，朝鲜，意大利，葡萄牙，俄罗斯，哈萨克斯坦，乌克兰，以色列，阿根廷，尼日利亚等。解锁Netflix、Disney+、Hulu等主流流媒体，轻松解锁全球影视内容。 解锁 ChatGPT。**价格低至 1 元，让你轻松尝鲜高品质网络体验！**
+
+👉[官方网址入口](https://mojie.xn--yrs494l.com/register?aff=rJp1uYUW)
 
 
 ---
