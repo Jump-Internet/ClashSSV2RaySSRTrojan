@@ -58,13 +58,22 @@
 
 👉[StarTrail官方网址入口](https://plinkc.sbs/#/register?code=BosKf4eJ)  
 
-## 六、[魔戒](https://mojie.xn--yrs494l.com/register?aff=rJp1uYUW)
+### 六）[随心飞](https://www.suixinfei.co/auth/signup?referrer=lZCDAw1W)
+- **核心优势**：采用优质中转广移沪移线路，SS 协议大机场，确保节点全 1 倍率、无限速体验，让你在国内也能享受国际级网络表现。
+- **节点地区**：香港，澳门，日本，台湾，新加坡，美国，韩国，英国，越南，印度尼西亚，马来西亚，缅甸，老挝，柬埔寨，泰国，菲律宾，印度，尼日利亚等。
+- **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
+- **超值套餐**：提供 不限时“纯流量”套餐，无月付、季付或年付限制，用多少算多少，让你尽享无限畅游！
+- **超值活动**：
+  - 年付优惠 10%（优惠码：`9999`）。
+- [👉 官网地址](https://www.suixinfei.co/auth/signup?referrer=lZCDAw1W)
+
+## 七、[魔戒](https://mojie.xn--yrs494l.com/register?aff=rJp1uYUW)
 
 &emsp;&emsp;不限速、**纯流量**计费，无到期限制，多人共享无压力，真正做到无限制上网。节点包括香港，日本，台湾，美国，新加坡，加拿大，德国，英国，土耳其，澳大利亚，朝鲜，意大利，葡萄牙，俄罗斯，哈萨克斯坦，乌克兰，以色列，阿根廷，尼日利亚等。解锁Netflix、Disney+、Hulu等主流流媒体，轻松解锁全球影视内容。 解锁 ChatGPT。**价格低至 1 元，让你轻松尝鲜高品质网络体验！**
 
 👉[官方网址入口](https://mojie.xn--yrs494l.com/register?aff=rJp1uYUW)
 
-## 七、[FSCloud](https://web.fscloud.app/#/register?code=mAMmbdAY)
+## 八、[FSCloud](https://web.fscloud.app/#/register?code=mAMmbdAY)
 
 &emsp;&emsp传说中的一元机场，一元即可享受100G流量套餐， Netflix等主流流媒体解锁。使用最新的协议hysteria2，reality，更好的连接体验，更快的速度冲浪。节点包括包括：日本，新加坡，美国，德国，越南，泰国等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。提供 **不限时 1000G “纯流量”套餐**，无月付、季付或年付限制，用多少算多少。**新用户可以先免费白嫖试用 3 天！月费低至 1.08 元，让你尽享无限畅游**
 
