@@ -91,8 +91,44 @@
   - 年付优惠 10%（优惠码：`9999`）。
 - [👉 官网地址](https://www.suixinfei.co/auth/signup?referrer=lZCDAw1W)
 
+
+---
+
+## 实用海外网站推荐
+
+这些网站能帮助你解决临时验证、下载视频、寻找经典游戏等需求，让你的海外体验更加丰富便捷：
+
+- **[chatgpt会员充值](https://www.gptpro.xin/ai-recharge.html?refer=Y6use8uF&channelCode=gptpro)**  
+  提供 GPT Plus/Pro 账号充值与使用服务，正规安全、下单便捷、30 天质保承诺，适合学习办公与创作使用！
+  
+  👉 [https://www.gptpro.xin/ai-recharge.html?refer=Y6use8uF&channelCode=gptpro](https://www.gptpro.xin/ai-recharge.html?refer=Y6use8uF&channelCode=gptpro)
+
+- **[爱壹帆](https://www.iyf.tv/)**  
+  海量高清视频平台，涵盖电视剧、电影、动漫、综艺、纪录片及新闻，实时更新，让海外观影变得轻松有趣！
+  
+  👉 [https://www.iyf.tv/](https://www.iyf.tv/)
+
+- **[临时邮箱收验证码](https://temp-mail.org)**  
+  临时邮箱接收验证码，保护隐私！
+  
+  👉 [https://temp-mail.org](https://temp-mail.org)
+
+- **[听猫呼噜声](https://purrli.com/)**  
+  专门听猫咪呼噜声，沉浸式体验。
+  
+  👉 [https://purrli.com/](https://purrli.com/)
+ 
+- **[下载 YouTube 视频和字幕](https://addyoutube.com/)**  
+  下载YouTube视频，离线观看！
+  
+  👉 [https://addyoutube.com/](https://addyoutube.com/)
+
+- **[小霸王游戏在线玩](https://www.yikm.net/)**  
+  小霸王经典游戏，勾起童年回忆！
+  
+  👉 [https://www.yikm.net/](https://www.yikm.net/)
+
 ---
 
 😊 **最后**：  
 如果你觉得这篇推荐对你有所帮助，请点击右上角的 star ⭐️，支持我持续更新更多优质资源。💚  
-感谢你的关注与支持，立即加入我们，开启全球网络畅游之旅吧！
