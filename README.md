@@ -4,9 +4,9 @@
 
 **（强烈建议收藏本页，每周会不定期更新机场信息，优惠活动等，如果此项目对你有帮助的话，star一下吖~感谢支持）**：
 
-- **机场纯小白？** [基础知识戳这里](https://github.com/Jump-Internet/ClashSSV2RaySSRTrojan/blob/main/content/content.md) 
-- **找不到工具？**（支持 Android/IOS/鸿蒙/Windows/Mac/Linux 客户端）[科学上网客户端](https://github.com/Jump-Internet/ClashSSV2RaySSRTrojan/blob/main/content/%E5%AE%A2%E6%88%B7%E7%AB%AF%E4%B8%8B%E8%BD%BD/kehuduan.md)
-- **不会用工具？** [新手教程戳这里](https://github.com/Jump-Internet/ClashSSV2RaySSRTrojan/tree/main/content/%E6%96%B0%E6%89%8B%E4%BD%BF%E7%94%A8%E6%95%99%E7%A8%8B)
+- **机场纯小白？** [基础知识戳这里](https://github.com/Jump-Internet/ClashSSV2RaySSRTrojanShare/blob/main/content/content.md) 
+- **找不到工具？**（支持 Android/IOS/鸿蒙/Windows/Mac/Linux 客户端）[科学上网客户端](https://github.com/Jump-Internet/ClashSSV2RaySSRTrojanShare/blob/main/content/%E5%AE%A2%E6%88%B7%E7%AB%AF%E4%B8%8B%E8%BD%BD/kehuduan.md)
+- **不会用工具？** [新手教程戳这里](https://github.com/Jump-Internet/ClashSSV2RaySSRTrojanShare/tree/main/content/%E6%96%B0%E6%89%8B%E4%BD%BF%E7%94%A8%E6%95%99%E7%A8%8B)
 
 ------
 ### 写在前面的
